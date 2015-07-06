@@ -1,3 +1,3 @@
-# Index By Day
+# Index By Week
 
 ## Day 1
